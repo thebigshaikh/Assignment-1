@@ -6,4 +6,4 @@
 
 #### So what is Vecta Corp?
 
-![Vecta Corp Image](C:\Users\shaik\OneDrive\Desktop\vc.png)
+![Vecta Corp Image](https://en.wiktionary.org/wiki/v#/media/File:Letter_v.svg))
