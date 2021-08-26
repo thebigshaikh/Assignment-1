@@ -6,4 +6,4 @@
 
 #### So what is Vecta Corp?
 
-![Vecta Corp Image](https://en.wiktionary.org/wiki/v#/media/File:Letter_v.svg)
+![Vecta Corp Image](https://cdn2.iconfinder.com/data/icons/royal-crowns/512/royal-alphabet-crown-letter-english-v-1024.png)
